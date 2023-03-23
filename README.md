@@ -1,0 +1,2 @@
+# torsdagsopgaver6v2
+ 
